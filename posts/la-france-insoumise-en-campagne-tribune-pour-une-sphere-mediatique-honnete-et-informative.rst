@@ -41,6 +41,7 @@ Certes, cette rencontre ne s’annonçait pas comme un long fleuve tranquille, m
 
 *Jean-Luc Mélenchon et l’équipe de campagne de la France Insoumise ne sont pas responsables des initiatives du Discord des insoumis et n’ont pas participé à l’écriture de cette tribune.*
 
+EDIT (22/02/17) : Pour aller plus loin : http://melenchon.fr/2017/02/22/chronique-dun-rendez-vous-manque/
 
  .. [#] Disponible en librairie au prix de 3 € seulement et maintenant accessible en accès libre à https://laec.fr
  .. [#] Accessibles à l’adresse suivante : https://avenirencommun.fr/livrets-thematiques/
